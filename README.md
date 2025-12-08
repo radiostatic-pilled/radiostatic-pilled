@@ -5,7 +5,7 @@ m name is korr
 
 he/him
 
-check links byi
+radiostatic connoisseur since 2019
 
 **RADIOAPPLE DNI**
 
