@@ -13,4 +13,4 @@ radiostatic connoisseur since 2019
 
 <a href="https://fourinteger.atabook.org">ata</a> , <a href="https://korrinteger.straw.page">sp</a> , <a href="https://en.pronouns.page/@korrinteger">prnspage</a>
 
-![](https://i.pinimg.com/736x/00/ed/a6/00eda6c81a9103edaa24ac0e71935da6.jpg)
+![](https://i.ibb.co/5W6TPPJ1/image-2025-12-16-115304216.png)
