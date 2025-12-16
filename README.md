@@ -8,7 +8,7 @@ he/him
 
 radiostatic connoisseur since 2019
 
-**RADIOAPPLE DNI**
+**RADIOAPPLE DNI DNI DNI DNI DNI DNI DNI DNI**
 &nbsp;<div align="center">
 
 <a href="https://fourinteger.atabook.org">ata</a> , <a href="https://korrinteger.straw.page">sp</a> , <a href="https://en.pronouns.page/@korrinteger">prnspage</a>
