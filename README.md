@@ -2,13 +2,13 @@
 ![](https://komarev.com/ghpvc/?username=fourinteger&label=++&color=317ccf)
 
 #
-m name is korr
+my name is korr
 
 he/him
 
 radiostatic connoisseur since 2019
 
-**RADIOAPPLE DNI DNI DNI DNI DNI DNI DNI DNI**
+**RADIOAPPLE DNI**
 &nbsp;<div align="center">
 
 <a href="https://korrinteger.atabook.org">ata</a> , <a href="https://korrinteger.straw.page">sp</a> , <a href="https://en.pronouns.page/@korrinteger">prnspage</a>
