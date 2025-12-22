@@ -8,7 +8,7 @@ he/him
 
 radiostatic connoisseur since 2019
 
-**radioapple dni**
+**i really hate radioapple dni if you like radioapple**
 &nbsp;<div align="center">
 
 <a href="https://korrinteger.atabook.org">ata</a> , <a href="https://korrinteger.straw.page">sp</a>
